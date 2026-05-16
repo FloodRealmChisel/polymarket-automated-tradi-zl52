@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with advanced Polymarket Utility | sentiment-analysis + trailing-stops, the #1 utility. Includes sentiment-analysis and trailing-stops for a
 
 
 
